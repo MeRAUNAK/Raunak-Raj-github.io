@@ -59,7 +59,7 @@ Strong in coding and implementation with intuitive problem-solving skills. Colla
   - *Jun '22 - Mar '23*
 
 ## CONTACT
-- Phone: +91 7209152920
+- Phone: +91 xxxxxxx
 - LinkedIn: [linkedin.com/in/raunakraj](https://www.linkedin.com/in/raunakraj)
 - Email: raunaksingh75751@gmail.com
 - Location: Phagwara, Punjab
